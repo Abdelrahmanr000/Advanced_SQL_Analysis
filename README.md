@@ -49,5 +49,4 @@ This analysis helps decision-makers:
 ## 📬 Contact
 
 - **Email:** abdlrahmanr645@gmail.com  
-- **LinkedIn:** [https://www.linkedin.com/in/your-linkedin-username/
-](https://www.linkedin.com/in/abdelrahman-reda-862191316/)
+- **LinkedIn:** (https://www.linkedin.com/in/abdelrahman-reda-862191316/)
