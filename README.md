@@ -47,4 +47,7 @@ This analysis helps decision-makers:
 ---
 
 ## 📬 Contact
-If you have any questions or feedback about this project, feel free to reach out.
+
+- **Email:** abdlrahmanr645@gmail.com  
+- **LinkedIn:** [https://www.linkedin.com/in/your-linkedin-username/
+](https://www.linkedin.com/in/abdelrahman-reda-862191316/)
